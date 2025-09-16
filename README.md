@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **katochrimsha@gmail.com**
 
-- ⚡ Linkdin ->> [www.linkedin.com/in/](https://www.linkedin.com/in/rimsha-katoch-76088725a/)
+- ⚡ Linkedin ->> [www.linkedin.com/in/](https://www.linkedin.com/in/rimsha-katoch-76088725a/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
